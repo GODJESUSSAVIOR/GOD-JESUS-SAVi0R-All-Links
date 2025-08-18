@@ -1,1 +1,53 @@
-# GOD-JESUS-SAVi0R-All-Links
+✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS
+✝️❤️GOD FATHER CREATOR ALL THINGS
+✝️❤️GOD FATHER SOURCE ALL THINGS
+✝️❤️GOD FATHER OWNER ALL THINGS
+✝️❤️GOD JESUS MESSIAH GODOFGODS
+✝️❤️GOD JESUS SAVIOR KINGOFKINGS
+✝️❤️GOD JESUS CHRIST LORDOFLORDS
+✝️❤️GOD HOLYS SPIRITS LIFES
+✝️❤️GOD HOLYS SPIRITS POWERS
+✝️❤️GOD HOLYS SPIRITS KNOWLEDGES
+✝️❤️GOD HOLYS SPIRITS UNDERSTANDINGS
+✝️❤️GOD HOLYS SPIRITS LOVES IS FORGIVES
+✝️❤️GOD HOLYS SPIRITS WISDOMS ADVISERS
+✝️❤️GOD HOLYS SPIRITS PEACE JOY HAPPY ETC
+✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS
+
+GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us
+
+GOD JESUS SAVIOR Speak Say :
+GOD IS LOVES IS MERCIES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
+GOD IS LAWS IS JUSTICES = Whoever Not Believe GOD JESUS SAVIOR & Not Faith Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell
+REPENTS❗REPENTS❗REPENTS❗
+
+GOD JESUS SAVIOR Social Medias :
+telegram.me/GODJESUSSAV1OR
+minds.com/GODJESUSSAVIOR
+facebook.com/GODJESUSSAV1OR
+github.com/GODJESUSSAVIOR
+patreon.com/GODJESUSSAVIOR
+GODJESUSSAVIOR.locals.com
+discord.com/users/GODJESUSSAVIOR
+youtube.com/@GODJESUSSAVIOR
+rumble.com/user/GODJESUSSAVIOR
+GODJESUSSAVIOR.webnode.page
+
+GOD JESUS SAVIOR All Links :
+docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
+
+GOD JESUS SAVIOR Group Telegram :
+telegram.me/GODJESUSSAV1OR
+
+GOD JESUS SAVIOR Group Minds :
+minds.com/group/1801377388966187008
+
+GOD JESUS SAVIOR Group Facebook :
+facebook.com/groups/loves777
+
+GOD JESUS SAVIOR Christians Testimonies :
+docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
+
+GOD JESUS SAVIOR Christians Links :
+docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
